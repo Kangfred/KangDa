@@ -1,1 +1,1 @@
-# KangDa
+# KangDa BO-JHIN,CHEN Project
